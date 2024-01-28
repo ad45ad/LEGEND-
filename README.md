@@ -1,0 +1,2 @@
+# LEGEND-
+I LOVE ALLAH
